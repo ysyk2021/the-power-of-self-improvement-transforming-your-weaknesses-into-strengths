@@ -12,7 +12,6 @@ Throughout this book, readers will also learn how to reflect on progress, find i
 
 By reading The Power of Self-Improvement: Transforming Your Weaknesses into Strengths, individuals will gain a new understanding of what it takes to achieve sustained success through self-improvement. They will be equipped with practical tools to turn their weaknesses into strengths, and ultimately, transform their lives for the better.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
