@@ -18,11 +18,6 @@ Strategies for Using These Tools and Resources to Support Self-Improvement
 
 Strategies for using tools and resources to support self-improvement include setting specific goals and timelines, tracking progress regularly, incorporating tools and resources into daily routines and habits, seeking feedback and guidance from others, and celebrating small wins along the way.
 
-Examples of Tools and Resources for Self-Improvement
-----------------------------------------------------
-
-Examples of tools and resources for self-improvement include books, podcasts, online courses, mentorship programs, coaching, therapy, apps, and self-assessment tools.
-
 Conclusion
 ----------
 
