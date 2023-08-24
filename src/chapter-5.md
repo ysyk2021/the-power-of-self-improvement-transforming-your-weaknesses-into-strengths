@@ -1,4 +1,3 @@
-# Chapter 4: Developing an Actionable Plan for Self-Improvement
 
 ## The Importance Of An Actionable Plan In Developing Effective Self-Improvement Skills
 

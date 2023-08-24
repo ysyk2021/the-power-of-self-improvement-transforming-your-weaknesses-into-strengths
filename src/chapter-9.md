@@ -1,5 +1,3 @@
-Chapter 8: Achieving Long-Term Success through Self-Improvement
-===============================================================
 
 Achieving long-term success requires ongoing commitment to self-improvement. This chapter will explore advanced techniques and strategies for achieving long-term success through self-improvement, tips for overcoming common challenges and obstacles in the process, and strategies for achieving sustained success through a practice of effective use of self-improvement.
 

@@ -1,5 +1,3 @@
-Strategies for Setting Specific, Measurable, Achievable, Relevant, and Time-Bound (SMART) Goals and Breaking Down Large Goals into Smaller Steps
-===============================================================================================================================================================================================================
 
 In this chapter, we will discuss the importance of developing an actionable plan for self-improvement. One of the key strategies in this process is setting S.M.A.R.T goals - goals that are Specific, Measurable, Achievable, Relevant, and Time-Bound. Additionally, we will explore how breaking down large goals into smaller steps can help you make progress towards your overall objective.
 
