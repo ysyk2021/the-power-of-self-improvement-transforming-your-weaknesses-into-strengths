@@ -1,5 +1,4 @@
-Chapter: Techniques for Selecting and Implementing Tools and Resources for Self-Improvement
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

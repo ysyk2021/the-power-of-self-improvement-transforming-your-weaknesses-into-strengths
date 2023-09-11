@@ -1,5 +1,4 @@
-Chapter: The Importance of Assessing Your Current Approach to Self-Improvement when Seeking to Transform Weaknesses into Strengths
-==================================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
